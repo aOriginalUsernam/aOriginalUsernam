@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aOriginalUsernam
 - 👀 I’m interested in being original with names, programming and gaming
-- 🌱 I’m currently attending my first yeat at https://www.hogeschoolrotterdam.nl/opleidingen/bachelor/informatica/voltijd/ 
+- 🌱 I’m currently attending my 2nd year at https://www.hogeschoolrotterdam.nl/opleidingen/bachelor/informatica/voltijd/ 
 
 
 <!---
